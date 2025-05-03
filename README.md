@@ -27,3 +27,6 @@ She/Her
 
 ## ⚡ Fun Fact
 I love solving puzzles 🧩, exploring new technologies 🔬, and I'm always up for a good cup of coffee ☕!
+
+> A little exaggerated? Maybe.  
+> But hey — this keeps me motivated to *become* the person who does all this. 💪
